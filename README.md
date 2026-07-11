@@ -1,16 +1,22 @@
-## Hi there 👋
+Pit
+He/She/They
 
-<!--
-**WeirdAngelBoy/WeirdAngelBoy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+DNI
+Sexual jokes or advances 
+Pro/com/darkshippers
+Basic DNI (https://dni-criteria.carrd.co/)
+Slurs
+Meanies
+Venting without consent.
 
-Here are some ideas to get you started:
+BYI
+I have severe anxiety. Interact with care.
+Tone tags are appreciated. I have trouble with tone and communication due to autism.
+I'm not here to make friends or enemies, just to hang out. Relationships stress me out. 
+I will sometimes go SV (semi verbal) or NV (nonverbal) so do not expect me to talk during these times.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Additional information:
+
+Kin doubles are a-okay.
+My special interests are Kid Icarus, ENA, Pokémon, TADC, and many more.
+If you have any more questions, do not hesitate to ask.
