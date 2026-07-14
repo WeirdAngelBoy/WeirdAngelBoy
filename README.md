@@ -1,4 +1,4 @@
-Pit
+Pit/Hani/ENA (Pit and Hani kin/c'link and ENA flicker)
 
 He/She/They
 
