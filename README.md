@@ -30,7 +30,7 @@ I will sometimes go SV (semi verbal) or NV (nonverbal) so do not expect me to ta
 
 Additional information:
 
-Kin doubles are a-okay. Just do not invalidate me and we will likely get along.
+Kin doubles are a-okay (Except for Hani atm due to personal reasons. You're still valid.) Just do not invalidate me and we will likely get along.
 
 My special interests are Kid Icarus, ENA, Pokémon, TADC, and many more.
 If you have any more questions, do not hesitate to ask.
